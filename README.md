@@ -3,7 +3,7 @@
 -Rahul Late
 -Ranveer Mali
 Ranjeet Jadhav
-sakshi upgrad
-pallavi upgrad
+Sakshi upgrad
+Pallavi upgrad
 
 
