@@ -33,6 +33,6 @@
 * Rahul Late
 * Ranveer Mali
 * Ranjeet Jadhav
-* Sakshi upgrad
+* Sakshi kere
 * Pallavi upgrad
 
