@@ -36,3 +36,5 @@
 * Sakshi kere
 * Pallavi Nikum :- www.linkedin.com/in/pallavi-nikum-b5b94b415
 
+## Linkdin Profiles of FSD B3 Students 
+Ranveer Mali:- https://www.linkedin.com/in/ranveer-mali-5735a6322/
